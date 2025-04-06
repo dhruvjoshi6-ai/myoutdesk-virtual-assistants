@@ -1,6 +1,6 @@
 # MyOutDesk Virtual Assistants - Business Growth Solution
 
-![AiCouponCode.com - Best AI-Powered Coupon Finder](https://aicouponcode.com/wp-content/uploads/2025/04/thumbnail-04777bff-e962-4d93-ad65-d1d6feb261af.jpg)
+[![MyOutDesk Virtual Assistants - AI-Powered Business Growth](https://aicouponcode.com/wp-content/uploads/2025/04/thumbnail-04777bff-e962-4d93-ad65-d1d6feb261af.jpg)](https://aicouponcode.com/myoutdesk-virtual-assistants/)
 
 ## 🚀 Special Offer
 **Get $500 credit on your first invoice**  
